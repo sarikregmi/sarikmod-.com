@@ -1,1 +1,1 @@
-# sarikmod-.com
+# sarikmod.com
